@@ -1,5 +1,5 @@
 
-### Hi there! :wave:
+### Merhaba! :wave:
   
 <img align='right' src="https://discord.c99.nl/widget/theme-1/287520994812362752.png"/>
   
